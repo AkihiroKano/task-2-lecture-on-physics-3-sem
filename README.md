@@ -1,0 +1,1 @@
+# task-2-lecture-on-physics-3-sem
